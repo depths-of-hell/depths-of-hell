@@ -3,7 +3,7 @@
    <img height="250" src="https://static.wikia.nocookie.net/superfriends/images/0/04/Helspont.jpg/revision/latest/scale-to-width-down/1200?cb=20110404033127"  />
 <br clear="both">
   <img height="30" src="https://64.media.tumblr.com/21049e21536422fb1813658f53aeea92/53818ac466dcb5a9-ca/s640x960/33ac4d40bdb0e6e78998c31420ae964ee74bef64.png"/> 
-<p align="center">WHERE ARE YOU LORD HELSPONT FANS I HEART U <br>﹒　lı　mrvl/dc　sth (ew)　ovw　tf　area　+multifndm <br>　please don't rp with me thanks　◞ ◟　i heart talking <br> ✧　canon pure-ist (derogatory) .ᐟ</p>
+<p align="center">WHERE ARE YOU LORD HELSPONT FANS I HEART U <br>﹒　lı　mrvl/dc　sth (ew)　ovw　crk　area　+multifndm <br>　please don't rp with me thanks　◞ ◟　i heart talking <br> ✧　canon pure-ist (derogatory) .ᐟ</p>
 </div>
 
 <div align="center">
