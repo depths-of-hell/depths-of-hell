@@ -1,22 +1,27 @@
 <br clear="both">
 <div align="center">
-   <img height="250" src="https://static.wikia.nocookie.net/superfriends/images/0/04/Helspont.jpg/revision/latest/scale-to-width-down/1200?cb=20110404033127"  />
-<br clear="both">
-  <img height="30" src="https://64.media.tumblr.com/21049e21536422fb1813658f53aeea92/53818ac466dcb5a9-ca/s640x960/33ac4d40bdb0e6e78998c31420ae964ee74bef64.png"/> 
-<p align="center">WHERE ARE YOU LORD HELSPONT FANS I HEART U <br>﹒　lı　mrvl/dc　sth (ew)　ovw　crk　area　+multifndm <br>　please don't rp with me thanks　◞ ◟　i heart talking <br> ✧　canon pure-ist (derogatory) .ᐟ</p>
+  
+<p align="center"> ──⟢‎ ‎ ‎  ‎𐔌՞. .՞𐦯‎ ‎ ‎ ‎ ‎helspont‎  .ᐟ‎ ‎ ‎ ‎ ‎  ‎ ⛌⛌⛌‎‎ ‎ ‎ ‎ ‎ ‎he ‎ /‎ ‎  they ‎ ‎ ‎ ᛝ‎ ‎‎ ‎  sign ata / straw ‎ ‎ ‎ ‎⟣──
+<br clear="center"> ⁭ ‎ ‎ ‎ ‎ ‎  [rentry](https://rentry.co/depths-of-hell) ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  [atabook](https://hellspawn.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  [strawpage](https://depths-of-hell.straw.page)  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ( ꩜ ᯅ ꩜;) ᶻ 𝗓 𐰁 .ᐟ⁭</p>
 </div>
 
 <div align="center">
-  <img height="20" src="https://44.media.tumblr.com/4d73372ab0a8b9016a8bf171ce795115/6aabbea0af91b052-cd/s100x200_f1/4bc4e57e2353ffbd1ae32a2196870213c4c7f079.gif"/> <img height="20" src="https://64.media.tumblr.com/f03cecf960ee88dceb615fa73801da87/6aabbea0af91b052-a2/s100x200/6e72f6a8d4926974e3f0ca568ae3441568db2883.png"/> <img height="20" src="https://64.media.tumblr.com/926322b88829074ed8d40b5de499042f/6aabbea0af91b052-37/s100x200/83961c6f731adff74031394631ec1e0d5b3bd521.gif"/> <img height="20" src="https://64.media.tumblr.com/e15fbde0afe43cc4d92412d7f4a0964f/6aabbea0af91b052-1a/s100x200/f836816cb039d69d436164257f35bd32ce978ca7.png"/>
-   <br> blackwash + whitewash is real btw ( -sincrely an asian ) <br> ( yall want representation till it's someone elses )
-<br clear="both">
-    <img height="29" src="https://64.media.tumblr.com/93b5074a510bd4d60bda41a027d46574/53818ac466dcb5a9-8a/s640x960/a43d568c602ca4e33f1a9f89b62ee163725114b2.png"/> 
-<p align="center">﹒　⤫　opinionated freak　/ 　firm w/ stances <br> 　I rlly don't like ships but you do you  ⸜⸜ so be free.. away.. <br> …　don't be weird to me cause of my skins ty</p>
-<div align="center">
-<img height="20" src="https://64.media.tumblr.com/8e4a59a3bc3aa75c20897869e194d772/415a1175c7f3ef38-57/s250x400/46bc11414f78358775f3bb4fb2c0dc6f4c2e9204.gif"/>
-<div align="center">
-</div> 
+   <img height="50" src="https://64.media.tumblr.com/e48a00699a014da07dd8dc80bc60deec/c573c037035c4113-17/s1280x1920/1188ea58943d73ae198ffa72cb6ec082f902a9c9.png"/>
+   
+‎ 
+‎ 
+‎ 
+‎ 
 
-###
+ 
+<p style="font-size:18px">   
+     ──── boo boring stuff, dni ewww ـــــــــــــــــــﮩ٨ـ
+<br clear="center"> ɪғ ʏᴏᴜ ᴛʜɪɴᴋ ʙʟᴀᴄᴋᴡᴀsʜɪɴɢ ɪsɴ'ᴛ ʀᴇᴀʟ (ʏᴏᴜ ᴄᴀɴ ʜᴀᴠᴇ ʀᴇᴘ, ᴜɴᴛɪʟ ɪᴛ's sᴏᴍᴇᴏɴᴇ ᴇʟsᴇ's)
+<br clear="center">  ғɴᴅᴍ: ʜᴏᴛᴇʟ/ʙᴏss, ᴍᴀᴅᴄᴏᴍ, ᴏʙᴊᴇᴄᴛ sʜᴏᴡ. ɪᴅɢᴀғ ᴡʜᴀᴛ ʏᴏᴜ'ʀᴇ ɪɴᴛᴏ, ʙᴀᴅ ᴇxᴘᴇʀɪᴇɴᴄᴇs.
+<br clear="center"> ᴛʜɪɴᴋ ғɪᴄᴛɪᴏɴ ᴅᴏᴇsɴ'ᴛ ᴇғғᴇᴄᴛ ʀᴇᴀʟɪᴛʏ. ғɪᴄᴛɪᴏɴ ɪs ᴀ ʀᴇғʟᴇᴄᴛɪᴏɴ ᴏғ ʀᴇᴀʟɪᴛʏ, ɴᴏᴛ ᴛᴏ ɢʟᴏʀɪғʏ
+<br clear="center"> i really dgaf, just have decency ty</p>
+
+<img height="15" src="https://64.media.tumblr.com/a3c77ec34025d874317387a7d5b87f5e/c573c037035c4113-17/s1280x1920/93137f45197ab9affc698932a105340d195c6269.pnj"/>
+</div> 
 
 </div>
